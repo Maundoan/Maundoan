@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Maundoan
 - 👀 I’m interested in art
-- 🌱 I’m currently learning paiting and collage.
+- 🌱 I’m currently learning painting and collage.
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me ...fb maun1 x@maun 
 - 😄 Pronouns: ...
